@@ -4,6 +4,8 @@ Bem-vindo ao lar digital da **União Palmolengo** – onde o amor pelo futebol s
 
 Aqui é **Palmeiras** e **Flamengo** juntos, lado a lado, no coração de um torcedor que não consegue escolher entre a garra alviverde e a paixão rubro-negra. Se você acha impossível torcer pelos dois... bem-vindo ao impossível. 😎🔥
 
+![Texto Alternativo](https://i.redd.it/3b64t1alq83b1.jpg)
+
 ---
 
 ## 🇧🇷 Sobre mim
